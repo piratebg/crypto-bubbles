@@ -9,4 +9,4 @@ We do not use cookies, log files, or analytics tools. There is no interaction wi
 If you have any concerns or questions about this policy, please contact us at:
 rjentenergy@gmail.com
 
-Last updated: [insert today’s date]
+Last updated: [6-March-2025]
